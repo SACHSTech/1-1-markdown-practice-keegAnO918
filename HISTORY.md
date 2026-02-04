@@ -24,15 +24,14 @@ This extended drum section became the foundation for MCs to hype up the crowd.
 2. [Afrika Bambaataa](https://youtu.be/9J3lwZjHenA) – spread hip hop culture through the Universal Zulu Nation.   
 3. [Grandmaster Flash](https://youtu.be/PobrSpMwKk4) – innovated DJ techniques like scratching and cutting.
 
-3. The Old School Era (Early 1980s)  
+## 3. The Old School Era (Early 1980s)  
 
-Run DMC (image link: https://i.imgur.com/e80w9gc.jpg)
+![Run DMC](https://i.imgur.com/e80w9gc.jpg)
 
 As hip hop gained traction, artists began recording tracks commercially.  
-- Rapper’s Delight by the Sugarhill Gang (1979) is widely recognized as the first recorded rap single to reach mainstream audiences. (video link: https://youtu.be/mcCK99wHrk0)  
-- Run-DMC fused rock and rap, creating crossover hits. (video link: https://youtu.be/l-O5IHVhWj0)  
-- LL Cool J and Beastie Boys brought hip hop to MTV audiences. (links: https://youtu.be/vimZj8HW0Kg, https://youtu.be/07Y0cy-nvAg)  
-
+- _"Rapper’s Delight"_ by the [Sugarhill Gang](https://youtu.be/mcCK99wHrk0) (1979) is widely recognized as the first recorded rap single to reach mainstream audiences.
+- [Run-DMC](https://youtu.be/l-O5IHVhWj0) fused rock and rap, creating crossover hits.  
+- [LL Cool J](https://youtu.be/vimZj8HW0Kg) and [Beastie Boys](https://youtu.be/07Y0cy-nvAg) brought hip hop to MTV audiences. 
 4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
 
 Notorious B.I.G. (image link: https://i.imgur.com/aICxYyc.jpg)
