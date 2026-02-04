@@ -9,20 +9,20 @@ Hip hop is more than just a genre of music. It is a cultural movement that began
 
 Together, these four pillars shaped a global cultural force. Today, hip hop is one of the most influential musical genres worldwide, though many argue that its commercial evolution has diluted some of its original authenticity.  
 
-2. The Birth of Hip Hop (1970s)  
+## 2. The Birth of Hip Hop (1970s)  
 
-DJ Kool Herc (image link: https://i.imgur.com/weXCosl.jpg)
+![DJ Kool Herc](https://i.imgur.com/weXCosl.jpg)
 
-Hip hop’s roots can be traced back to block parties in the Bronx. DJs such as Kool Herc pioneered the technique of isolating and looping the breakbeat from funk and soul records.  
+Hip hop’s roots can be traced back to block parties in the Bronx. DJs such as Kool Herc pioneered the technique of isolating and looping the _breakbeat_ from funk and soul records.  
 
 This extended drum section became the foundation for MCs to hype up the crowd.  
 
-“Hip hop didn’t invent anything. Hip hop reinvented everything.” – Chuck D 
+>“Hip hop didn’t invent anything. Hip hop reinvented everything.” – Chuck D 
 
-Key Figures of the 1970s:  
-1. Kool Herc – credited with extending the break. (video link: https://youtu.be/10C-Q3NIlzU)  
-2. Afrika Bambaataa – spread hip hop culture through the Universal Zulu Nation. (video link: https://youtu.be/9J3lwZjHenA)  
-3. Grandmaster Flash – innovated DJ techniques like scratching and cutting. (video link: https://youtu.be/PobrSpMwKk4)  
+**Key Figures of the 1970s:**  
+1. [Kool Herc](https://youtu.be/10C-Q3NIlzU) – credited with extending the break.
+2. [Afrika Bambaataa](https://youtu.be/9J3lwZjHenA) – spread hip hop culture through the Universal Zulu Nation.   
+3. [Grandmaster Flash](https://youtu.be/PobrSpMwKk4) – innovated DJ techniques like scratching and cutting.
 
 3. The Old School Era (Early 1980s)  
 
