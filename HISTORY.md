@@ -31,23 +31,26 @@ This extended drum section became the foundation for MCs to hype up the crowd.
 As hip hop gained traction, artists began recording tracks commercially.  
 - _"Rapper’s Delight"_ by the [Sugarhill Gang](https://youtu.be/mcCK99wHrk0) (1979) is widely recognized as the first recorded rap single to reach mainstream audiences.
 - [Run-DMC](https://youtu.be/l-O5IHVhWj0) fused rock and rap, creating crossover hits.  
-- [LL Cool J](https://youtu.be/vimZj8HW0Kg) and [Beastie Boys](https://youtu.be/07Y0cy-nvAg) brought hip hop to MTV audiences. 
-4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
+- [LL Cool J](https://youtu.be/vimZj8HW0Kg) and [Beastie Boys](https://youtu.be/07Y0cy-nvAg) brought hip hop to MTV audiences.
+  
+## 4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
 
-Notorious B.I.G. (image link: https://i.imgur.com/aICxYyc.jpg)
+![Notorious B.I.G.](https://i.imgur.com/aICxYyc.jpg)
 
-The Golden Age is often described as the most creative and influential period of hip hop.  
+>"I never sleep, 'cause sleep is the cousin of death." - Nas, _N.Y. State of Mind_
+
+The **Golden Age** is often described as the most creative and influential period of hip hop.  
 This era emphasized lyrical complexity, innovation in production, and a broad diversity of styles.  
 
-4.1 East Coast Greats  
-- A Tribe Called Quest – jazz-influenced beats, socially conscious lyrics.  
-- The Notorious B.I.G. – storytelling genius, Ready to Die (1994).  
-- Nas – Illmatic (1994), often considered one of the greatest hip hop albums ever.  
+### **4.1 East Coast Greats** 
+- **A Tribe Called Quest** – jazz-influenced beats, socially conscious lyrics.  
+- **The Notorious B.I.G.** – storytelling genius, _Ready to Die_ (1994).  
+- **Nas** – _Illmatic_ (1994), often considered one of the greatest hip hop albums ever.  
 
-4.2 West Coast Pioneers  
-- N.W.A. – brought gangsta rap to the forefront with Straight Outta Compton (1988).  
-- Tupac Shakur (2Pac) – poetic lyricism with political and emotional depth.  
-- Ice Cube and Dr. Dre – pushed West Coast sound into the mainstream.  
+### **4.2 West Coast Pioneers** 
+- **N.W.A.** – brought gangsta rap to the forefront with _Straight Outta Compton_ (1988).  
+- **Tupac Shakur (2Pac)** – poetic lyricism with political and emotional depth.  
+- **Ice Cube** and **Dr. Dre** – pushed West Coast sound into the mainstream.  
 
 “I never sleep, ’cause sleep is the cousin of death.” – Nas, N.Y. State of Mind  
 
