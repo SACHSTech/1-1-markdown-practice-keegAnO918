@@ -37,7 +37,7 @@ As hip hop gained traction, artists began recording tracks commercially.
 
 ![Notorious B.I.G.](https://i.imgur.com/aICxYyc.jpg)
 
->"I never sleep, 'cause sleep is the cousin of death." - Nas, _N.Y. State of Mind_
+>"I never sleep, ’cause sleep is the cousin of death.” - Nas, _N.Y. State of Mind_
 
 The **Golden Age** is often described as the most creative and influential period of hip hop.  
 This era emphasized lyrical complexity, innovation in production, and a broad diversity of styles.  
@@ -50,18 +50,17 @@ This era emphasized lyrical complexity, innovation in production, and a broad di
 ### **4.2 West Coast Pioneers** 
 - **N.W.A.** – brought gangsta rap to the forefront with _Straight Outta Compton_ (1988).  
 - **Tupac Shakur (2Pac)** – poetic lyricism with political and emotional depth.  
-- **Ice Cube** and **Dr. Dre** – pushed West Coast sound into the mainstream.  
+- **Ice Cube** and **Dr. Dre** – pushed West Coast sound into the mainstream.
 
-“I never sleep, ’cause sleep is the cousin of death.” – Nas, N.Y. State of Mind  
+  
+## 5. Elements of Style 
 
-5. Elements of Style  
-
-5.1 Lyrical Themes  
+### 5.1 Lyrical Themes  
 - Social commentary (racism, poverty, politics)  
 - Braggadocio and wordplay  
 - Storytelling and narratives  
 
-5.2 Production Techniques  
+### 5.2 Production Techniques  
 - Sampling from funk, jazz, and soul records  
 - Use of drum machines like the Roland TR-808  
 - Layering multiple samples into dense sound collages  
