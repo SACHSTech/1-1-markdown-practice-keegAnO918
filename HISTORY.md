@@ -76,20 +76,20 @@ West Coast | Tupac, N.W.A., Ice Cube | All Eyez on Me, Straight Outta Compton
 Midwest   | Common, Bone Thugs-N-Harmony | Resurrection, E. 1999 Eternal 
 South     | Outkast, Geto Boys    | Southernplayalisticadillacmuzik  
 
-7. Transition to the 2000s  
+## 7. Transition to the 2000s  
 
 By the late 1990s, the deaths of Tupac Shakur and The Notorious B.I.G. marked the tragic end of an era.  
 The industry shifted towards commercialization, with artists like Jay-Z and Eminem dominating charts.  
 
-Positives: Greater mainstream recognition, global spread of hip hop.  
-Negatives: Increasing commercialization, rise of formulaic “radio rap.”  
+- Positives: Greater mainstream recognition, global spread of hip hop.  
+- Negatives: Increasing commercialization, rise of formulaic “radio rap.”  
 
-8. Modern Hip Hop  
+## 8. Modern Hip Hop  
 
-Kendrick Lamar (image link: https://i.imgur.com/GFKOYTV.jpg)
+![Kendrick Lamar](https://i.imgur.com/GFKOYTV.jpg)
 
-“If I’m gonna tell a real story, I’m gonna start with my name.” – Kendrick Lamar  
+>“If I’m gonna tell a real story, I’m gonna start with my name.” – Kendrick Lamar  
 
-While many fans critique modern trap and pop-rap for its repetitiveness, artists like Kendrick Lamar have preserved a commitment to lyrical depth. good kid, m.A.A.d city (2012) and To Pimp a Butterfly (2015) are widely hailed as modern classics.  
+While many fans critique modern [trap](https://en.wikipedia.org/wiki/Trap_music) and [pop-rap for](https://en.wikipedia.org/wiki/Pop_rap) its repetitiveness, artists like Kendrick Lamar have preserved a commitment to lyrical depth. _good kid, m.A.A.d city_ (2012) and To _Pimp a Butterfly_ (2015) are widely hailed as modern classics.  
 
-Kendrick also made history in 2018 when his album DAMN. won the Pulitzer Prize for Music — making him the first and only rapper ever to receive this honour. This recognition was groundbreaking, as it placed hip hop alongside classical and jazz works that traditionally dominate the award, further cementing its cultural legitimacy and artistic value.  
+Kendrick also made history in 2018 when his album _DAMN_. won the **Pulitzer Prize for Music** — making him the **first and only rapper ever to receive this honour.** This recognition was groundbreaking, as it placed hip hop alongside classical and jazz works that traditionally dominate the award, further cementing its cultural legitimacy and artistic value.  
