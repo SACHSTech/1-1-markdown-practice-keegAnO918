@@ -108,4 +108,4 @@ The industry shifted towards commercialization, with artists like Jay-Z and Emin
 
 While many fans critique modern [trap](https://en.wikipedia.org/wiki/Trap_music) and [pop-rap for](https://en.wikipedia.org/wiki/Pop_rap) its repetitiveness, artists like Kendrick Lamar have preserved a commitment to lyrical depth. _good kid, m.A.A.d city_ (2012) and To _Pimp a Butterfly_ (2015) are widely hailed as modern classics.  
 
-Kendrick also made history in 2018 when his album _DAMN_. won the **Pulitzer Prize for Music** — making him the **first and only rapper ever to receive this honour.** This recognition was groundbreaking, as it placed hip hop alongside classical and jazz works that traditionally dominate the award, further cementing its cultural legitimacy and artistic value.  
+Kendrick also made history in 2018 when his album _DAMN_. won the **Pulitzer Prize for Music** — making him the **first and only rapper ever to receive this honour.** This recognition was groundbreaking, as it placed hip hop alongside classical and jazz works that traditionally dominate the award, further cementing its cultural legitimacy and artistic value.   
